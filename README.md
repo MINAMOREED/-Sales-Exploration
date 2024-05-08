@@ -1,4 +1,4 @@
-This Dashboard shows the insights of a store sales with every usfel detail in data. 
+This Dashboard shows the insights of a store sales with every useful detail in data. 
 
 It breaks down sales by department, year, month, and quarter. It also shows sales by quantity of products sold.  
 
