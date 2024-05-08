@@ -1,19 +1,10 @@
-skjbsdhabssdouchnsoijdbfoidshfoazjncdfiasbfihjokhfabsdoihfwsiufasd
 
-
-askjgfgvadsoikfg
-sfdg
-
-
-![Screenshot 2024-04-29 223458](https://github.com/MINAMOREED/-Sales-Exploration/assets/94475420/c50ed51d-510c-4b0e-974d-70dbd259cf35)
+__________________________________________________________________________________________________________________________________________
+| ![Screenshot 2024-04-29 223458](https://github.com/MINAMOREED/-Sales-Exploration/assets/94475420/c50ed51d-510c-4b0e-974d-70dbd259cf35) |
+__________________________________________________________________________________________________________________________________________
 
 
 
-dfsgagasgasgfasgfrwfwegfsafdg
-wregasgas
-gasgasg
-fsgas
-gagsrgaewrgrsgawsrg
 
 
 
